@@ -1,3 +1,3 @@
-# Biscuit
+# Biscuit :)
 
 Bonjour et bienvenue
